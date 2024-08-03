@@ -16,4 +16,5 @@ Here are some ideas to get you started:
 -->
 - 🌱 I’m currently learning at University of  Kelaniya - Sri Lanka
 - - 📫 How to reach me: kavindu008822@outlook.com
-## Skills ✨
+  - 
+## Activities ✨
