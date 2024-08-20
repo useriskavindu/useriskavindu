@@ -18,5 +18,5 @@ Here are some ideas to get you started:
 - 📫 How to reach me: kavindu008822@outlook.com
     
 ## Activities ✨
-hi
-whatsup
+- hi
+- hatsup
